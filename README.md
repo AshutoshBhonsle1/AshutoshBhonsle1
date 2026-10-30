@@ -6,5 +6,4 @@ Hi there, I'm Ashutosh!
 - 👯 I’m looking to collaborate on projects that tackle medical or model efficiency themes
 - 🤔 I’m looking for help with these very same topics,,, I'm learning!
 - 📫 How to reach me: Using my [Email](bhonsle.ashutosh@gmail.com) or my [LinkedIn](https://www.linkedin.com/in/ashutosh-bhonsle/)
-- 😄 Pronouns: Ba/dum/tsss
 - ⚡ Fun fact: I have a tiny [YouTube channel](https://www.youtube.com/@OnionPax-g1h)
